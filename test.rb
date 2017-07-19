@@ -1,2 +1,0 @@
-helooooo
-vasilii
